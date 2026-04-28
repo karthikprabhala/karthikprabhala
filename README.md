@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @karthikprabhala
 - 👀 I’m interested in ...
-- 🌱 I’m currently learning .vit vellore..
+- 🌱 I’m currently learning .MIT Manipal
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...contact@karthikprabhala(instagram handle)
 
